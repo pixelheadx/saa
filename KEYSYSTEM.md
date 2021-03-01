@@ -1,2 +1,1 @@
-https://link-to.net/221143/KeySystem1     << Copy this link and put it on your browser remember the key system has 2 tasks copy this link and paste it not on ur script you stupid nigga 
-                                   
+https://link-to.net/221143/KeySystem1     << PLEASE DONT BE STUPID ITS NOT THE KEY ITS A LINKVERTISE COMPLETE THIS THEN YOU WILL GET THE KEY PLEASEEEEE DONT BE DUMB OR I CRI
